@@ -26,6 +26,11 @@ Aqui estão uns gostos meus:
 - 5 The Amazing Digital Circus
 - 6 Epic Minequest
 
+(05/02/2026) =Golt to futuro aqui=
+ Nada oque esse desgraçado escreveu é real. Não tenho mais esses gostos.
+ Ainda gosto dessas obras, mas tá tudo errado hoje em dia.
+
+
 <!---
 SirGoltMan/SirGoltMan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
